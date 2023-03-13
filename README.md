@@ -1,3 +1,3 @@
-Hey, I just have fun with code :)
+code funny
 
-my discord: Lillemann#7724
+my discord is Ash 🐸#7724
